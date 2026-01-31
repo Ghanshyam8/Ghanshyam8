@@ -33,7 +33,6 @@ When I’m not coding, you’ll find me:
 ---
 
 ### 📫 Connect With Me
-### 📫 Connect With Me
 - **Email:** [anishpanta192@email.com](mailto:anishpanta192@email.com)  
 - **Phone:** +977 9822845100
 - **YouTube:** [[Ghanshyam Panta](https://www.youtube.com/@ghanshyampanta) ](https://www.youtube.com/@anishpanta2820) 
